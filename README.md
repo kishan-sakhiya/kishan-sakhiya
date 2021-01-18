@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Linkedin](https://www.linkedin.com/in/kishansakhiya/)
 - 😄 Pronouns: ... He/She
--->
